@@ -1,2 +1,2 @@
 # Web-Persena
-beriiskan tentang team sepakbola persena nnaggela
+berisikan tentang team sepakbola persena nanggela
